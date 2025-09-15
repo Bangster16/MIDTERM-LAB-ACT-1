@@ -1,1 +1,0 @@
-# MIDTERM-LAB-ACT-1
